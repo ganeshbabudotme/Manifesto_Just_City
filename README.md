@@ -1,0 +1,1 @@
+# Manifesto_Just_City
